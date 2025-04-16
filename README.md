@@ -1,0 +1,1 @@
+Deskulpa Labele Asesu
